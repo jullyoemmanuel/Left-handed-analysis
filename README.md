@@ -2,7 +2,7 @@
 
 <center>
 <img src="https://static.foxnews.com/foxnews.com/content/uploads/2021/08/left-handed-iStock.jpg" style="width:800px"> <br> 
-<em>O aumento surpreendente da capitalização de mercado do Bitcoin em 2017.</em></center>
+</center>
 
 Barack Obama é canhoto. Assim como Bill Gates e Oprah Winfrey; assim como Babe Ruth e Marie Curie. Um estudo de 1991 relatou que os canhotos morrem em média nove anos antes dos destros. Nove anos! Isso poderia realmente ser verdade?
 
